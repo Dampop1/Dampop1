@@ -9,7 +9,7 @@
 
 💞️ I’m looking to collaborate on Data Analytics/Science Projects
 
-🤝 I’m looking for help with Data Analyst/Science Jobs
+🤝 I’m open to Data Analyst/Science Jobs
 
 📫 Reach me on Damilolaayoni123@gmail.com
 <!--
